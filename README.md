@@ -13,3 +13,9 @@ Menurut saya intrivia sangat asik dan bermakna. Hal ini dikarenakan rangkaian se
 ## Kesan Pesan Cluster 17 Sejauh Ini
 
 Kesan saya terhadap cluster 17 saat ini sangat welcome dan asik menurut saya. Semua teman yang asik dan solid membuat sayan bahagia dan mudah untuk adaptasi. Pesan saya kepada cluster 17 adalah selalu menjaga pertemanan dan selalu solid hingga kedepannya.
+
+
+## Harapan Kuliah 
+Harapan saya adalah saat saya kuliah saya bisa menguasai AI engiineer lalu dapat uang sebanyak-banyaknya. 
+
+
